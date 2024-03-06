@@ -1,0 +1,2 @@
+# ethical
+Be Ethical
